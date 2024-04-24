@@ -1,6 +1,6 @@
 ## ***⋆𐙚+ timeagents 's info ˚⊹♡***
 
-*hello , my name is **NOX** ! i am **19** years old and use **HE** and SHE pronouns ( IT is alright on occasion , please try not to use THEY if you've read this ) .* 
+*hello , my name is **NOX** ! i use **HE** and SHE pronouns ( IT is alright on occasion , please try not to use THEY if you've read this ) .* 
 
 *i don't have a dni list yet , and i'm pretty chill with most things anyway .*
 > *i made this page for ponytown use only . i **disconnect a lot** so i hope this doesn't bother anyone when trying to int with me .*
