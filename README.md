@@ -17,7 +17,7 @@
 ### ***interests :***
 *my main interests at the moment are **时光代理人 ( Link Click )** , **第五人格 ( Identity V )** , and **Omniscient Reader's Viewpoint** .*
 
-*i'm also into a few anime or manga series : **csm , mp100 , psinan ( saiki k ) , kny** | cartoons : **mlp , bapc** | have played / playing : **hi3 , gi , sky:cotl , hypmic , prsk en** | and know some vtubers ( mostly from 2434 - Nijisanji ) .*
+*i'm also into a few anime or manga series : **csm , mp100 , psinan ( saiki k ) , kny** | cartoons : **mlp , bapc** | have played / playing : **hi3 , gi , sky:cotl , hypmic , prsk en** | kpop groups : **itzy , skz , monsta x** | j artists : **eve , giga , miyyuu** | and know some vtubers ( mostly from 2434 - Nijisanji ) .*
 > *the things listed here are just examples , not limited to it .*
 
 *i hope to connect with more people who are into the same things i like* (◞ u ◟;)
