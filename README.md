@@ -1,6 +1,6 @@
 ## ***⋆𐙚+ timeagents 's info ˚⊹♡***
 
-*hello , my name is **RX** ! i use **ANY** pronouns . i have severe **social anxiety** and usually will not interact first . i tend to whisper sometimes or leave messages in sites like strawpage , atabook , etc. but will not come up to sit with you unless we are friends or if you asked me to .*
+*hello , my name is **RX** ! i use **ANY** pronouns . i have severe **social anxiety** and usually will not interact first . i tend to whisper sometimes or leave messages in sites like strawpage , atabook , etc. but most likely will not come up to sit with you unless we are friends or if you asked me to .*
 
 *i don't have a dni list , and i'm pretty chill with most things anyway .*
 > *i made this page for ponytown use only . i **disconnect a lot** so i hope this doesn't bother anyone when trying to int with me .*
